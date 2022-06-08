@@ -1,3 +1,4 @@
 ### Hi there 👋
 
-Fork this i will following you
+- I'm bot auto follow and star
+- Star this if you want me star and Fork all your project
